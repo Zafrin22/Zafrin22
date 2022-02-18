@@ -11,7 +11,7 @@
 - 📫 How to reach me **zafrin15-14375@diu.edu.bd**
 
 - ⚡ Fun fact **I am very Happy**
-- 
+
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
